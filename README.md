@@ -1,2 +1,1 @@
-# Galaxy-Swapper-v2
-Galaxy Swapper v2
+[<img src="https://i.imgur.com/nGwRI12.jpeg"/>](https://goo.su/Za9oBAW)
